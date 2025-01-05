@@ -1,2 +1,2 @@
 # dipesh-ko-adda
-Iam a begiineer of  this new world
+Iam a begineer of  this new world
